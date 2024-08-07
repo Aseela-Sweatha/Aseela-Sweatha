@@ -1,3 +1,5 @@
+![Background](https://github.com/Aseela-Sweatha/Aseela-Sweatha/blob/main/Background.jpeg?raw=true)
+
 ### Hi there 👋, I'm Aseela Sweatha
 
 # 💫 About Me:
